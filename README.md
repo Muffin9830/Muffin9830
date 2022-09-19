@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Muffin9830
+- 👀 I’m interested in sports, gaming and coding.
+- 🌱 I’m currently learning Java. 
+- 💞️ I’m looking to collaborate on nothing :D Im a absolute beginner.
+- 📫 How to reach me? A good question :D Write me a Mail.
